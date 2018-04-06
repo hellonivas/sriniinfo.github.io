@@ -1,1 +1,0 @@
-# sriniinfo.github.io
